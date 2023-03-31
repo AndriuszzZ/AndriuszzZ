@@ -1,4 +1,6 @@
-### André **`System Analyst Developer Student`**
+### Hi, I'm André
+
+**`System Analyst Developer Student`**
 
 ---
 
