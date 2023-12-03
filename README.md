@@ -1,4 +1,4 @@
-### Olá, me chamo André
+### Olá, me chamo André ✌
 
 **`Estudande de Análise e Desenvolvimento de Sistemas`**
 
